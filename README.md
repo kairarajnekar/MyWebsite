@@ -7,5 +7,5 @@ I would give 'The Office' a 9.9/10; It's one of my favorite shows, and you can w
 ![Modern Family](https://user-images.githubusercontent.com/114519890/193704072-696dfcec-1fa4-484e-a0b0-5193e4dbeadc.png)
 Modern Family is another one of my favorites, and I would rate it 10/10. I really enjoyed Modern Family, and have also watched this show multiple times. It is good in all seasons.
 ## Schitt's Creek (2015)
-![Schitt's Creek](https://user-images.githubusercontent.com/114519890/193705275-211fb9f0-0b92-47d3-805b-f90996516c0c.png)
+![Schitt's Creek](https://user-images.githubusercontent.com/114519890/193705419-bf19c142-c366-42bf-849e-6f15aa47317c.png)
 Schitt's Creek is a really funny show, that I would rate a 9.7/10. I think this is more of a one-time watch, and it's a rich family who's money is taken by their financial advisor, and have to move from their mansion to a small rural town, known as Schitt's Creek.  
