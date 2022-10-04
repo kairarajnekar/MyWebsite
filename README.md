@@ -14,4 +14,5 @@ Schitt's Creek is a really funny show, that I would rate a 9.7/10. I think this 
 ## The Crown (2016)
 ![The Crown](https://user-images.githubusercontent.com/114519890/193707194-7dadd3cd-32c9-47cc-aaf7-498589dcd01b.png)
 If you are looking for a more serious show, I definately reccomend "The Crown," and would rate it as 9.8/10. "The Crown" is a show about the British royal family since Queen Elizabeth ascended the throne. It has drama, and both fictional and nonfictional aspects to it. The actors fit the characters really well, and they change the actors as they age through the seasons, whcih keeps it kind of realistic.
+
 Here is a review of "The Crown" by 'The NY Times' [Review: ‘The Crown’ and the Burdens of a No-Drama Queen](https://www.nytimes.com/2019/11/14/arts/television/the-crown-review-netflix.html)
